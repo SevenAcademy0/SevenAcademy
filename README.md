@@ -1,1 +1,1 @@
-# SevenAcademy
+# By SevenAcademy
